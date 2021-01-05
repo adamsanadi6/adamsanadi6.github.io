@@ -1,2 +1,0 @@
-# adamsanadi.github.io
-hn
